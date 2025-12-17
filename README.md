@@ -1,1 +1,1 @@
-https://github.com/vtoraja2-dot/ono-tebe-nado-ad#
+https://github.com/vtoraja2-dot/ono-tebe-nado-ad
